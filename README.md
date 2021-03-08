@@ -1,1 +1,3 @@
-# apocrypha
+>Sem and Seth were in great honour among men, and so was Adam above every living thing in creation.
+
+>Then didst thou ordain two living creatures, the one thou calledst Enoch, and the other Leviathan; And didst separate the one from the other: for the seventh part, namely, where the water was gathered together, might not hold them both. Unto Enoch thou gavest one part, which was dried up the third day, that he should dwell in the same part, wherein are a thousand hills: But unto Leviathan thou gavest the seventh part, namely, the moist; and hast kept him to be devoured of whom thou wilt, and when.
